@@ -6,8 +6,4 @@
  <br/>  ‎ ‎ ‎ ‎  ׁ ⁩   𓇼 ‎15 ‎ ‎ ‎ ‎𝅄　 ﾟ‎ ‎ ‎ ‎  she  ㄑㄑ ‎ ‎ anyㅤ𝅄　　　 
 	<br/>ﾟ　‎𝅄　‎ ‎DREAM GAME ﾉ RAIN WORLD BRAINROT　‎𝅄　ﾟ
 	<br/> ++⠀｡｡｡
-	<br/> byi!!!!
-<br/> i have bipolar disorder, this does really impact the way i act 𓏼 
-<br/> my humor consists of offensive jokes, tell me if you dont like that! 𓏼 
-<br/>‎ ‎ ‎‎ ‎  ｡｡｡ ++⠀
-<br/>‎FHIS IS SITLL WIP
+	<br/>[dni](rentry.co/narz)𓇼𓇼𓇼[byi](rentry.co/narz1)
