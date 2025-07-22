@@ -6,4 +6,4 @@
  <br/>  ‎ ‎ ‎ ‎  ׁ ⁩   𓇼 ‎15 ‎ ‎ ‎ ‎𝅄　 ﾟ‎ ‎ ‎ ‎  she  ㄑㄑ ‎ ‎ anyㅤ𝅄　　　 
 	<br/>ﾟ　‎𝅄　‎ ‎DREAM GAME ﾉ RAIN WORLD BRAINROT　‎𝅄　ﾟ
 	<br/> ++⠀｡｡｡
-	<br/>[dni](rentry.co/narz)𓇼𓇼𓇼[byi](rentry.co/narz1)
+	<br/>
