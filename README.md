@@ -1,2 +1,2 @@
 
-౨[dni](rentry.co/narz) ˚౨ৎ˚[byi](rentry.co/narz1)ৎ
+౨[dni](https://rentry.co/narz) ˚౨ৎ˚[byi](https://rentry.co/narz1)ৎ
